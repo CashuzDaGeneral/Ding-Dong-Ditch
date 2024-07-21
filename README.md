@@ -6,7 +6,9 @@ Creative Writing and Storytelling:  heavily involved in creative writing, develo
 •  Animation and Film Production: I am working on an animated film "The Stallion and the Bee" involves creating a storyline, developing characters, and incorporating songs. This project reflects my capabilities in animation, film production, and possibly voice acting, as well as my skill and talent for blending visual and auditory elements to create a cohesive and engaging cinematic experience.
 •  Web and Graphic Design: My design of websites and various apps designs show a strong skill in web and graphic design. My skill shows I can create visually appealing and user-friendly digital platforms that support the daily interaction of users creative expression and enhance user interaction.
 •  Marketing and Content Creation: My expertise extends to creating commercial ads and engaging content, indicating a strong understanding of marketing strategies and audience engagement. My knowledge of how-to craft messages that resonate with your target audience and promote your creative works effectively.
+Check out my LinkedIn page and tap the Feature section
 
+https://www.linkedin.com/in/ralph-johnson-3948482bb?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 <!---
 CashuzDaGeneral/CashuzDaGeneral is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
